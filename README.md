@@ -1,7 +1,7 @@
 # Zeromail
 
-![zeromail](https://ibb.co/L9pDk7Y)
-![zeromail](https://ibb.co/7J3VKVZ)
+![zeromail](https://i.ibb.co/kqcVHC5/2022-06-11-19-05-29-Window.png)
+![zeromail](https://i.ibb.co/gM0wJwf/2022-06-11-19-08-08-Window.png)
 
 
 
